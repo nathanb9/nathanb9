@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+📫 How to reach me: nathanbezualem@gmail.com
 <!--
 **nathanb9/nathanb9** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
